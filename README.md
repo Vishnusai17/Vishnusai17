@@ -5,6 +5,7 @@ AI Enthusiast
 -------------
 
 * 🌍  I'm based in INDIA
+* 🥗  Be hold still cooking on this
 * ✉️  You can contact me at [vishnusaireddyalla@gmail.com](mailto:vishnusaireddyalla@gmail.com)
 
 ### Skills
