@@ -4,9 +4,9 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 AI Enthusiast
 -------------
 
-* 🌍  I'm based in INDIA
+* 🌍  I'm based in New York
 * 🥗  Be hold still cooking on this
-* ✉️  You can contact me at [vishnusaireddyalla@gmail.com](mailto:vishnusaireddyalla@gmail.com)
+* ✉️  You can contact me at [avishnusaireddy17@gmail.com](mailto:avishnusaireddy17@gmail.com)
 
 ### Skills
 
