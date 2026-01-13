@@ -3,7 +3,7 @@ Hi ! My name is Vishnu Sai Reddy A
 
 AI Enthusiast
 -------------
-
+![Profile Views](https://komarev.com/ghpvc/?username=Vishnusai17&label=Profile%20Views)
 * 🌍  I'm based in New York
 * 🥗  Be hold still cooking on this
 * ✉️  You can contact me at [avishnusaireddy17@gmail.com](mailto:avishnusaireddy17@gmail.com)
